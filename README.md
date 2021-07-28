@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lienart
+- 👀 I’m interested in story telling
+- 🌱 I’m currently having a job
+- 💞️ I’m not specialy looking to collaborate
+- 📫 How to reach me leonardpivaADyahoo.fr
