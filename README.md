@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lienart
+- 👋 Hi, I’m @leo baby
 - 👀 I’m interested in story telling
 - 🌱 I’m currently open to chitchat
 - 💞️ I’m not specialy looking to collaborate
